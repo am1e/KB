@@ -1,3 +1,1 @@
-# KB
-
-[Kaushik Bharati](http://kaushikbharati.org/)
+~~hey there~~
